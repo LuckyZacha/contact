@@ -6,6 +6,4 @@ Telegram https://t.me/supercoderoket
 
 Discord: https://discord.gg/at3hc2ba
 
-Skype: https://join.skype.com/invite/wDpwy4t21eVg
-
 Email: zachatatem@gmail.com
